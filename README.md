@@ -1,0 +1,6 @@
+- 👋 bom dia/boa tarde/ boa noite.
+- 🥸tá fazendo oque aí?
+- prazer em conhece-lo! 🤔
+- meu nome é Angelo 🤝🤙
+- entra no servidor do discord do meu amigo 🤙 www.discord.com/dreamersmc
+- 🇧🇷  🤝  🤜🤛
